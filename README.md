@@ -10,5 +10,12 @@
 
 [2.py](https://github.com/user-attachments/files/32548830/2.py)
 
+# Test Metrics Task
+
+
+[Test Metrics](https://1drv.ms/x/c/C90302CD8015FE80/AUStB1ig461Lh6Zus6ouRwQ?e=hgIFCQ&utm_source=chatgpt.com)
+
+
+
 
 
